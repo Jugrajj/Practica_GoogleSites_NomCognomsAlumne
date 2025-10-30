@@ -1,2 +1,0 @@
-# Practica_GoogleSites_NomCognomsAlumne
-Pracrt
